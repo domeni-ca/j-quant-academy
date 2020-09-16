@@ -1,0 +1,1 @@
+# j-quant-academy
